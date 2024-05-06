@@ -1,0 +1,1 @@
+~Teste editor texto~
