@@ -1,1 +1,0 @@
-### this is brazilian culture of pranks and kiddings.
